@@ -1,2 +1,2 @@
 # Hello-World
-This repository is for practising the GitHub Flow
+Goth Rock and old horror movies, especially vampire films :new_moon:
